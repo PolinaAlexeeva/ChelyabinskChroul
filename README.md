@@ -8,5 +8,5 @@ olij
 Gjcnybrjd kj
 Артём я сказал гуля нибудет
 Ну.. допустим. /Марина
-
+bingus is my beloved /Polina
 а че???
